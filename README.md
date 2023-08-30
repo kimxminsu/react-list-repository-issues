@@ -1,5 +1,5 @@
 # Capture
-https://github.com/kimxminsu/kimxminsu.github.io/assets/35947676/66df8295-e1f3-464b-8d4d-7297883d1822
+![스크린샷 2023-08-30 오후 7 41 58](https://github.com/kimxminsu/kimxminsu.github.io/assets/35947676/66df8295-e1f3-464b-8d4d-7297883d1822)
 
 # Loading
 
